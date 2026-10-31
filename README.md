@@ -7,5 +7,7 @@
   c+h encouraged, i like making friends <br>
   ships int if u want, i dont really care <br>
   <a href="https://lesliemeyers.atabook.org/">sign my atabook</a> <a href="https://pronouns.cc/@raci">look at my pronouns</a>
+
+    art by ch1zemyy on twt
   </p>
  </div>
