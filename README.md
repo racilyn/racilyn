@@ -5,7 +5,7 @@
   <p align="center">
   racilyn <br>
   c+h encouraged, i like making friends <br>
-  ships int if u want, i like rarepairs <br>
+  ships int if u want, i dont really care <br>
   <a href="https://lesliemeyers.atabook.org/">sign my atabook</a> <a href="https://pronouns.cc/@raci">look at my pronouns</a>
   </p>
  </div>
